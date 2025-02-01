@@ -1,4 +1,3 @@
-
 # Verse of the Day: Finding Strength in God's Words
 
 
